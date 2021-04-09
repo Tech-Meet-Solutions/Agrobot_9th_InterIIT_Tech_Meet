@@ -22,7 +22,7 @@ But we miss Kaustubh and Jatin in the pic... Anirudh Mittal is the General Secre
 
 - [Nakul Randad](https://nakulrandad.github.io) *(Team Lead)* 
 - [Aaron John Sabu](https://sites.google.com/view/aaronjs/)  
-- [Vishwajeet Bhagyawant](https://www.linkedin.com/in/vishwajeet-bhagyawant-132650192/) *(Team Lead)* 
+- [Vishwajeet Bhagyawant](https://vishwajeetiitb.github.io/) *(Team Lead)* 
 - [Jatin Prashath](https://www.linkedin.com/in/jatin-prasath-399546183/)  
 - [Yash Patil](https://www.linkedin.com/in/yash-patil-675863194/)  
 - [Kaustubh Patil](https://www.linkedin.com/in/kaustubh-patil-04/)  
