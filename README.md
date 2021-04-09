@@ -27,4 +27,4 @@ But we miss Kaustubh and Jatin in the pic... Anirudh Mittal is the General Secre
 - [Yash Patil](https://www.linkedin.com/in/yash-patil-675863194/)  
 - [Kaustubh Patil](https://www.linkedin.com/in/kaustubh-patil-04/)  
 
-The contingent won Bronze Medal 🥉 in the RuTAG-NE Agrobot Design Innovation Challenge.
+### The contingent won Bronze Medal 🥉 in the RuTAG-NE Agrobot Design Innovation Challenge.
